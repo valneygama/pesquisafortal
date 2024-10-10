@@ -10,7 +10,10 @@
    Taxa para chegar mais cedo. (marina conversou)
    (R$ 320,80 pessoa)
    
-   
+<br>
+<br>
+<br>
+<br>   
 3. <img src="./ap3.png" alt="drawing" style="width:140px;" align="right" />**R$ 1747,00**: Luxuoso Apto - Meireles 🌟4,80
    Anfitriã(o): Blenar
    https://www.airbnb.com.br/rooms/1212620015052787793?check_in=2024-11-15&check_out=2024-11-18&guests=1&adults=5&s=67&unique_share_id=3fab91df-68fb-4b90-ba97-7868de63a5cf
@@ -18,7 +21,8 @@
    (R$ 349,40 pessoa)
    
    
-
+<br>
+<br>
 4. <img src="./ap4.png" alt="drawing" style="width:140px;" align="right" />**R$ 1963,00**: Apartamento em Meireles 3 Quartos - 100m Beira Mar 🌟5,0
    Anfitriã(o): Marcia
    https://www.airbnb.com.br/rooms/929774755257912578?check_in=2024-11-15&check_out=2024-11-18&guests=1&adults=5&s=67&unique_share_id=fcbb495c-e7f9-4eaa-9279-63075845e7c2

@@ -13,7 +13,8 @@
 <br>
 <br>
 <br>
-<br>   
+<br>
+<br>
 3. <img src="./ap3.png" alt="drawing" style="width:140px;" align="right" />**R$ 1747,00**: Luxuoso Apto - Meireles 🌟4,80
    Anfitriã(o): Blenar
    https://www.airbnb.com.br/rooms/1212620015052787793?check_in=2024-11-15&check_out=2024-11-18&guests=1&adults=5&s=67&unique_share_id=3fab91df-68fb-4b90-ba97-7868de63a5cf
